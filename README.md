@@ -10,6 +10,7 @@ No matter what kind of games you enjoy, you can find something you like at Daman
 And the best part is, while you're having fun playing these games, you can also earn rewards. So not only do you get to have a good time, but you can also get something extra for it.
 
 So if you're looking for a place to play awesome games and maybe even earn some rewards while you're at it, check out Daman Games. It's the perfect place for gamers of all kinds to have a blast!
+
 | App Name	 | Daman Game App |
 |-----------------|-----------------|
 | Best Feature    | Easy & Timely Withdrawals    |
