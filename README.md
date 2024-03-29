@@ -18,4 +18,4 @@ So if you're looking for a place to play awesome games and maybe even earn some 
 | APK Size   | 7.60 MB   |
 | APK Version	  | 1.4.0 Latest Version    |
 
-[![download](image/download.jpg)](damangamesapp.org/)
+[![download](image/download.jpg)](https://damangamesapp.org/)
